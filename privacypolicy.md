@@ -1,4 +1,4 @@
-# Privacy Policy for [Bot Name]
+# Privacy Policy for Clowner
 
 **Effective Date:** May 27, 2026
 
